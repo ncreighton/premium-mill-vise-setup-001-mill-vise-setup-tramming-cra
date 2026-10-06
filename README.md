@@ -1,0 +1,2 @@
+# premium-mill-vise-setup-001-mill-vise-setup-tramming-cra
+Stop wasting hours re-learning your mill vise setup and tramming every time you switch jobs—turn your process into a repeatable, documented craft.  This Notion template transforms your mill vise setup and tramming into a structured, repeatable workflow. No more forgotten offsets, inconsistent results, or scattered notes—just a single source of trut
